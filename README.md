@@ -4,6 +4,6 @@
  
 - 🌱 I’m currently learning to improve my own coding skills
 
-- 💞️ I’m looking to collaborate on graphical tools
+- 💞️ I love writing code to automate repetative processes :D
 
 - 📫 You can message me here :D
