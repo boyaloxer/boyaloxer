@@ -1,2 +1,2 @@
-Producer, Techy, Worker Bee. 🐝
-\n https://linktr.ee/boyaloxer
+Producer, Techy, Worker Bee. 🐝  
+https://linktr.ee/boyaloxer
